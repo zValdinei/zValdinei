@@ -5,4 +5,6 @@
   - This is i'm. **Hope ENJOY!!!**
 
   - Contact: contato.valdinei1@gmail.com
+  - Linkedin: https://www.linkedin.com/in/valdinei-ferreira-418182215/
+  - Cel.: (21)98012-7494
 <div>
